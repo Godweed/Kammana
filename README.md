@@ -1,3 +1,3 @@
 # Bayk.us Tişört ve Kişiselleştirilebilir tasarımlar
 
-<a href='http://www.bayk.us/' rel='dofollow'>Bayk.us</a>
+<a href='https://www.kammana.com/' rel='dofollow'>Kammana Tişört</a>
